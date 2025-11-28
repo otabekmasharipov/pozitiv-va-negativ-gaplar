@@ -1,0 +1,1 @@
+# pozitiv-va-negativ-gaplar
